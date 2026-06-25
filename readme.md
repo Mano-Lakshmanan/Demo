@@ -1,0 +1,2 @@
+aluma doluma
+motu patlu
